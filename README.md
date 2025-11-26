@@ -1,1 +1,0 @@
-# photo.libr.rv.ua
